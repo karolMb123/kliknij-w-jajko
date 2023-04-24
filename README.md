@@ -1,1 +1,0 @@
-# kliknij-w-jajko
